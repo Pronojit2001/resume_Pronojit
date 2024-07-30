@@ -1,4 +1,4 @@
 # resume_Pronojit
 
 
-https://github.com/Pronojit2001/resume_Pronojit/issues/1#issue-2438045399
+![Pronoit_Pic](https://github.com/user-attachments/assets/148f9cea-0f9d-411e-a2c8-d8ac97e4e703)
